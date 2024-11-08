@@ -1,1 +1,0 @@
-Nadwy Personal Website
